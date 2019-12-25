@@ -1,16 +1,27 @@
-On the first day in Nigeria
+## On the first day in Nigeria
+
 she really sent to me:
+
 a pothole smack center on the road.
 
-On the second day in Nigeria
+
+## On the second day in Nigeria
+
 she really sent to me:
+
 pothole remains unpatched
+
 and a pothole smack center on the road.
 
-On the third day in Nigeria
+
+## On the third day in Nigeria
+
 she really sent to me:
+
 citizens take oncoming lane
+
 pothole remains unpatched
+
 and a pothole smack center on the road.
 
 On the fourth day in Nigeria
